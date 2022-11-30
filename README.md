@@ -1,4 +1,4 @@
-# Hello there 👋, I'm Shiva ( @EpicShiv )
+# Hello there 👋, I'm Shiva ( @shiva-bollibattula )
 
 ### Software/DevOps/Cloud Engineer
 
